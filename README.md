@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Some1UdontKnow
-- 🇨🇵 From the contry of Baguette 
+- 🇨🇵 From the country of Baguette 
 - There is nothing to know about me 😭
 
 <!---
